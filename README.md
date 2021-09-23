@@ -1,1 +1,1 @@
-#This page is all about my course assignments
+#This page is all about my course assignment
